@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoeGillData
+- 👀 I’m interested in data
+- 🌱 I’m currently learning data
+- 💞️ I’m looking to collaborate on data
+- 📫 How to reach me Twitter ~ @JoeGillData
